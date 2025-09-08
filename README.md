@@ -1,1 +1,1 @@
-# fuckai
+fuck-ai
